@@ -1,5 +1,5 @@
 1.Privacy Policy
- PG Neko Slot : ทดลองเล่น application is developer PG USUN as a free application.Developer PG USUN provided this SERVICE at no cost and intended for use as is.
+ PG Neko Slot : ทดลองเล่น application is developer sathit as a free application.Developer sathit provided this SERVICE at no cost and intended for use as is.
  This page is used to inform visitors of my policies regarding the collection, use, and disclosure of personal information when someone decides to use our service.
  By using my services, you consent to the collection and use of the information in connection with this policy. The personal information we collect is used to provide and improve the service. We do not use or share your information with anyone except as described in 
  this Privacy Policy.
@@ -7,7 +7,7 @@
  
  
 2.Collection and Use of Information
- For a better experience, you may be required to provide us with certain personally identifiable information when using our Services, including but not limited to developer PG USUN. The information we request will be retained on your device and is not collected by us in 
+ For a better experience, you may be required to provide us with certain personally identifiable information when using our Services, including but not limited to developer sathit. The information we request will be retained on your device and is not collected by us in 
  any way. We will not sell or rent your personal information at any time under any circumstance. We only use your personal information for several general purposes: to fulfill your requests for certain products and services, to personalize your experience on our 
  website, to keep you up to date on the latest product announcements, software updates, special offers or other information we consider you would like to hear about either from us or from our business partners, and to better understand your needs and provide you with 
  better services.
