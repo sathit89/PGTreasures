@@ -1,9 +1,9 @@
 1.Privacy Policy
- PG Neko Slot : ทดลองเล่น application is developer sathit as a free application.Developer sathit provided this SERVICE at no cost and intended for use as is.
+ PG Treasures : ทดลองเล่นสล็อต application is developer sathit as a free application.Developer sathit provided this SERVICE at no cost and intended for use as is.
  This page is used to inform visitors of my policies regarding the collection, use, and disclosure of personal information when someone decides to use our service.
  By using my services, you consent to the collection and use of the information in connection with this policy. The personal information we collect is used to provide and improve the service. We do not use or share your information with anyone except as described in 
  this Privacy Policy.
- Terms used in this Privacy Policy have the same meanings as in the Terms and Conditions accessible on PG Neko Slot : ทดลองเล่น unless otherwise defined in this Privacy Policy.</br>
+ Terms used in this Privacy Policy have the same meanings as in the Terms and Conditions accessible on PG Treasures : ทดลองเล่นสล็อต unless otherwise defined in this Privacy Policy.</br>
  
  
 2.Collection and Use of Information
@@ -17,8 +17,8 @@
  
  
 3.Information and Data Deletion 
- Based on the Personal Data Protection Act and Consumer Privacy Protection Framework, you have the right to delete your personal information. In certain circumstances, if PG PG Neko Slot : ทดลองเล่น no longer needs to hold your personal information or you withdraw your 
- consent, you have the right to request PG Neko Slot : ทดลองเล่น delete your personal information. The deletion may also delete the game accounts related to Neko Casion. If you request to delete personal information through a third-party platform, it will directly 
+ Based on the Personal Data Protection Act and Consumer Privacy Protection Framework, you have the right to delete your personal information. In certain circumstances, if PG Treasures : ทดลองเล่นสล็อต no longer needs to hold your personal information or you withdraw your 
+ consent, you have the right to request PG Treasures : ทดลองเล่นสล็อต delete your personal information. The deletion may also delete the game accounts related to PG Treasures : ทดลองเล่นสล็อต. If you request to delete personal information through a third-party platform, it will directly 
  affect your game account and related game account login, please be sure to confirm clearly.
  If you wish to delete your account information and data, you can do the following:</br> 
  1 Log in to the game</br>
@@ -63,5 +63,6 @@ Changes to this Privacy Policy</br>
  This policy is effective as of September 1, 2023
    
 Contact Us</br>
- If you have further questions or any suggestions about Privacy Policy, please feel free to contact us at tasewasu@gmail.com
+ If you have further questions or any suggestions about Privacy Policy, please feel free to contact us at sathitxinphum759@gmail.com.
+
 .
